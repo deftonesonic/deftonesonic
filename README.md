@@ -11,7 +11,7 @@
 <br> </br>
 	<p align="center"><tt> xio | 19 | 🇭🇳 | audhd 
 <b> i value honesty, communication, and sincerity in relationships. friendships are a two-way street, and 
- i am not interested in a lack of effort in a friendship. </b>
+ i am not interested in a lack of effort in any relationship. </b>
 <i> he/they transmasc lesbian</i></tt>
 	<br> </br>
 <div><b>" I hate a lot of things, and <br>I don't particularly like anything. "</b><p align="center"><img width="300"src="https://pbs.twimg.com/media/FDH0rqgVUAM8nSZ.png"> <p align="right"><b>" What I have is not a dream, </br>because I will make it a reality. " </b></p></br></div>
